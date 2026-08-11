@@ -1,4 +1,4 @@
-# Hola, soy Nicolás 👋
+# Nicolás Barahona J
 
 📍 **Chile** · **Ingeniero**
 
